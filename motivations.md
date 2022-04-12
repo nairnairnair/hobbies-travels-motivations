@@ -1,0 +1,1 @@
+i am switching to a web development career because i have a massive mental block surrounding doing anything with writing (my degree is in english and creative writing) and my past jobs (content strategist, tour guide, property manager, barista) all sucked a lot and i want to do something that compensates me well and lets me work from home
